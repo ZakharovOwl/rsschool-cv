@@ -1,5 +1,5 @@
 # Aleksandr Zakharov
-<img src="https://ibb.co/yFW883F" alt="Aleksandr Zakharov photo" width="200" height="200">  
+<img src="https://i.ibb.co/Jj5zzhj/me2.jpg" alt="Aleksandr Zakharov photo" width="200" height="200">  
 
 ## Contacts
 * Phone: +37525 626 58 76
